@@ -1,1 +1,1 @@
-# valutPrivacyPolicy
+# Valut(by BitsShift) Privacy Policy
